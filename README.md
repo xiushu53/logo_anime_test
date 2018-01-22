@@ -1,0 +1,1 @@
+# logo_anime_test
